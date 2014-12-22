@@ -35,11 +35,11 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-A play of loue a newe and a mery enterlude concernyng pleasure and payne in loue, made by Iho[a]n He
+ SAM . PEPYS . CAR . ET . LAC . ANG• . REG•• . A . SECRETIS . ADMIRALIAEMens cujusque is est Quisque
 #####Body#####
-A play of loue a newe and a mery enterlude concernyng pleasure and payne in loue, made by Iho[a]n He
+The louer not beloued.LO ſyr, who ſo that loketh here for curteſyAnd ſeth me ſeme as one pretendyng 
 #####Back#####
-A play of loue a newe and a mery enterlude concernyng pleasure and payne in loue, made by Iho[a]n He
+Prynted by. w. Raſtell M. ccccc. xxxiiii.Cum priuilegio Regali.
 **Types of content**
 
   * There are 1595 **verse** lines!
